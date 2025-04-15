@@ -1,0 +1,2 @@
+# SERTIFIKAT-ORACLE
+sertifikat oracle
